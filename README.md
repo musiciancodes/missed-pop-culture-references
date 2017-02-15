@@ -1,4 +1,4 @@
-# List of Missed Pop Culture References
+# Awesome List of Missed Pop Culture References
 
 - Rick and Morty: "butter robot" (robot with insignificant purpose): 
 	- https://www.youtube.com/watch?v=X7HmltUWXgs
