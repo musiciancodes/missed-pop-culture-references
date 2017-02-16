@@ -11,6 +11,8 @@
 - Top Gear: "a tv show about cars and sorta engineering, British and ridiculous" 
 	- example: sending Reliant into Space, sorta
 		- https://www.youtube.com/watch?v=pJdrlWR-yFM
+- Larry the Cable Guy
+
 - Almost anything Star Wars or Star Trek Related (really)
 	- Star Trek: "data the thing vs data the android" 
 		- https://www.youtube.com/watch?v=zCGrAOF7J_M
