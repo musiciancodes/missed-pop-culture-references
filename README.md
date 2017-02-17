@@ -18,4 +18,6 @@
 		- https://www.youtube.com/watch?v=zCGrAOF7J_M
 	- Star Wars: appropriate watching order
 
+- Larry the Cable Guy: 
+	- said, "why does this make so and so want to watch Larry the cable guy. Who is that?"
 
