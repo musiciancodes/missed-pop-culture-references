@@ -30,5 +30,7 @@
 - Indian Jones "we reached got them under the ban like Indian Jones grabbing his hat as the door closed"
 	- https://www.youtube.com/watch?v=2ui85HwTX1s
 
+- the "the more you know star" in 1980s & 1990s Public Service Announcements (PSAs) on broadcast television. Referenced in "the more you know" star used as emoji on Slack. 
+	- Will Smith example of 'stay in school' https://www.youtube.com/watch?v=oVjI5o0Ed9k
 
 =======
