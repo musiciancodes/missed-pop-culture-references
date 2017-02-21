@@ -20,4 +20,6 @@
 
 - Larry the Cable Guy: 
 	- said, "why does this make so and so want to watch Larry the cable guy. Who is that?"
-
+	
+- Indian Jones "we reached got them under the ban like Indian Jones grabbing his hat as the door closed"
+	- https://www.youtube.com/watch?v=2ui85HwTX1s
