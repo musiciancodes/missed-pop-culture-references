@@ -33,4 +33,5 @@
 - the "the more you know star" in 1980s & 1990s Public Service Announcements (PSAs) on broadcast television. Referenced in "the more you know" star used as emoji on Slack. 
 	- Will Smith example of 'stay in school' https://www.youtube.com/watch?v=oVjI5o0Ed9k
 
-=======
+- Simpson's Homer quote, "alcohol, the cause of and solution to all life's problems" used in reference to global variables being the cause of and solution to all coding problems. 
+	- https://www.youtube.com/watch?v=hUVwR0rw5fk
