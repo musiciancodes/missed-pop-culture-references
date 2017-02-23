@@ -23,7 +23,6 @@
 	- "only do, there is no try"
 		- https://www.youtube.com/watch?v=E4hb7NcrJzQ
 
-
 - Larry the Cable Guy: 
 	- said, "why does this make so and so want to watch Larry the cable guy. Who is that?"
 	
@@ -35,3 +34,8 @@
 
 - Simpson's Homer quote, "alcohol, the cause of and solution to all life's problems" used in reference to global variables being the cause of and solution to all coding problems. 
 	- https://www.youtube.com/watch?v=hUVwR0rw5fk
+
+- Google's user of the name "Parsey McParseface" that references the boat name "Boaty McBoatface" 
+	- http://www.telegraph.co.uk/technology/2016/05/17/has-googles-parsey-mcparseface-just-solved-one-of-the-worlds-big/
+	- http://www.bbc.com/news/uk-36225652
+
