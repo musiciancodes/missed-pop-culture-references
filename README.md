@@ -40,5 +40,7 @@ Scott pilgram saves tge world girl with streak in
 	- http://www.telegraph.co.uk/technology/2016/05/17/has-googles-parsey-mcparseface-just-solved-one-of-the-worlds-big/
 	- http://www.bbc.com/news/uk-36225652
 	
-	
+- Will Ferrell and Christopher Walken (SNL), "I've got a fever and the only prescription, is more cowbell"
+	- https://www.youtube.com/watch?v=E3S4jTOGGKA
+
 	
