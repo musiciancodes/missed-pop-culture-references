@@ -43,4 +43,7 @@ Scott pilgram saves tge world girl with streak in
 - Will Ferrell and Christopher Walken (SNL), "I've got a fever and the only prescription, is more cowbell"
 	- https://www.youtube.com/watch?v=E3S4jTOGGKA
 
-	
+- "Fat guy in a little coat" joke from "Tommy Boy" https://www.youtube.com/watch?v=BYB3Fx0a8-4
+
+- "Portlandia's Feminist Bookstore" - https://www.youtube.com/watch?v=IrcGeSmEdC4
+
