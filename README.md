@@ -47,3 +47,7 @@ Scott pilgram saves tge world girl with streak in
 
 - "Portlandia's Feminist Bookstore" - https://www.youtube.com/watch?v=IrcGeSmEdC4
 
+- It isn't like he's the Fonze. Who is the Fonze? https://en.wikipedia.org/wiki/Fonzie
+
+- 
+
