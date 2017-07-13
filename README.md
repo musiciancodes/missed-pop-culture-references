@@ -51,3 +51,6 @@ Scott pilgram saves tge world girl with streak in
 
 - Monty Python search for holy Grail coconut reference https://www.youtube.com/watch?v=zqtS9xyl0f4
 
+- Transformers: More than meets the eye, robots in disguise!
+	- https://en.wikipedia.org/wiki/Transformers
+	- http://tfwiki.net/wiki/The_Transformers_(cartoon)
