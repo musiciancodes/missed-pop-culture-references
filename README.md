@@ -54,3 +54,5 @@ Scott pilgram saves tge world girl with streak in
 - Transformers: More than meets the eye, robots in disguise!
 	- https://en.wikipedia.org/wiki/Transformers
 	- http://tfwiki.net/wiki/The_Transformers_(cartoon)
+- Highlander: unsure of quote
+	- https://en.wikipedia.org/wiki/Highlander:_The_Series
