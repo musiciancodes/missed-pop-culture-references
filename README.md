@@ -56,3 +56,6 @@ Scott pilgram saves tge world girl with streak in
 	- http://tfwiki.net/wiki/The_Transformers_(cartoon)
 - Highlander: unsure of quote
 	- https://en.wikipedia.org/wiki/Highlander:_The_Series
+	
+- The Eye of the Tiger Video played at end of a job before going onto a new organization as a way to get someone excited.
+	- https://www.youtube.com/watch?v=btPJPFnesV4
