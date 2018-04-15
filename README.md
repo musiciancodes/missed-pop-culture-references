@@ -61,3 +61,4 @@ Scott pilgram saves tge world girl with streak in
 	- https://www.youtube.com/watch?v=btPJPFnesV4
 	
 - Didn't fully understand suggestion to reply with a "Wrath of Khan" gif to someone who was displeasing. This was in reference to the 1981 Star Trek movie "Wrath of Khan" and in particular a scene where Captain Kirk yells in anger with a famously unpleasant look on his face. https://www.reddit.com/r/nasa/comments/8c26ky/nasa_break_room_problems_are_different_than_most/  and https://giphy.com/gifs/star-trek-james-t-kirk-ii-the-wrath-of-khan-5U4uFSd7JDsQ
+
