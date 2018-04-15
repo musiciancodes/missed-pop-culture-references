@@ -59,3 +59,5 @@ Scott pilgram saves tge world girl with streak in
 	
 - The Eye of the Tiger Video played at end of a job before going onto a new organization as a way to get someone excited.
 	- https://www.youtube.com/watch?v=btPJPFnesV4
+	
+- Suggestion to respond with "Wrath of Khan" gif to display displeasure was not understood. This references a 1981 Star Trek Movie "Wrath of Khan" and in particular one scene where a distressed Captain Kirk shouts in anger KHANNN! in an overly dramatic way. https://giphy.com/gifs/star-trek-spock-KeTVw7VjcTJok
