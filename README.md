@@ -62,3 +62,6 @@ Scott pilgram saves tge world girl with streak in
 	
 - Didn't fully understand suggestion to reply with a "Wrath of Khan" gif to someone who was displeasing. This was in reference to the 1981 Star Trek movie "Wrath of Khan" and in particular a scene where Captain Kirk yells in anger with a famously unpleasant look on his face. https://www.reddit.com/r/nasa/comments/8c26ky/nasa_break_room_problems_are_different_than_most/  and https://giphy.com/gifs/star-trek-james-t-kirk-ii-the-wrath-of-khan-5U4uFSd7JDsQ
 
+- Referring to building up a few different stacks in a balanced way as "monopoly rules"
+    - https://en.wikibooks.org/wiki/Monopoly/Official_Rules#Properties,_Rents,_and_Construction
+    - https://monopoly.fandom.com/wiki/Houses
